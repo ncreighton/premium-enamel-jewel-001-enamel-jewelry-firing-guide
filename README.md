@@ -1,0 +1,2 @@
+# premium-enamel-jewel-001-enamel-jewelry-firing-guide
+Tired of unpredictable enamel results and wasted materials because your firing process is all guesswork? This Notion template turns the chaos of trial-and-error into a repeatable, scientific system.  The Enamel Jewelry Firing Guide replaces scattered notes and sticky notes with a centralized, customizable database that tracks every variable: temper
